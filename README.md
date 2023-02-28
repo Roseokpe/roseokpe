@@ -10,7 +10,7 @@
 <br />
 <br />
 
-Hi, I'm Rose Okpe, a software Developer 🚀 from Nigeria, currently, I'm a student of Microverse. Beside's programming, I like traveling, Meeting new friends and Bringing imagination to life
+Hi, I'm Rose Okpe, a software Developer 🚀 from Nigeria, currently, I'm a studenting at Microverse. Beside's programming, I like traveling, Meeting new friends and bringing imagination to life!
 
  
   
